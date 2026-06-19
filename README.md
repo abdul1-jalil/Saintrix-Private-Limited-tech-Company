@@ -1,1 +1,1 @@
-# Sain Trix Landing Page
+Saintrix Private Limited Tech Company
